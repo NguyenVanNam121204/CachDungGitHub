@@ -12,4 +12,3 @@ bún chả và nem.
 
 Với vẻ đẹp thiên nhiên, con người thân thiện và bản sắc văn hóa độc đáo, Việt
 Nam là điểm đến hấp dẫn đối với du khách trong nước và quốc tế.
-Tôi rất yêu việt nam
